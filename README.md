@@ -23,3 +23,5 @@ ok I am going to anna house he said to come
 ok eu today na tmr na a mail reply evala 12 month di 
 e rojey ivvu
 ok tc gn i will come i will apply so many job and email all ok mom ok na bye gn thinni po hlo ok na thinnava padukota tmr holiday na 8
+
+haa thinna 8 came to anna house 8 today ç bcz of 8
