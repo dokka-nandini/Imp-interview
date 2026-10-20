@@ -22,3 +22,4 @@ i ate chapathi beside police canteen and one mail came just see
 ok I am going to anna house he said to come
 ok eu today na tmr na a mail reply evala 12 month di 
 e rojey ivvu
+ok tc gn i will come i will apply so many job and email all ok mom ok na bye gn thinni po 
