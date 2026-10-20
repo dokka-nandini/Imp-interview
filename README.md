@@ -25,3 +25,4 @@ e rojey ivvu
 ok tc gn i will come i will apply so many job and email all ok mom ok na bye gn thinni po hlo ok na thinnava padukota tmr holiday na 8
 
 haa thinna 8 came to anna house 8 today ç bcz of 8
+ok 8 tc prayer
