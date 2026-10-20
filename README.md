@@ -20,3 +20,4 @@ one mail come i saw i will to come but mom ki right hand kada i will tell see fi
 i ate chapathi beside police canteen and one mail came just see
 23 Vastha may be pray tc 87 
 ok I am going to anna house he said to come
+ok eu today na tmr na a mail reply evala 12 month di 
