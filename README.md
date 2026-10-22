@@ -9,6 +9,12 @@ Ready to take the first step? Apply now: https://forms.gle/X96FqXMmKjmAPfQ37
 
 Website: https://ymtsindia.com/
 
+
+Apply this =] https://docs.google.com/forms/d/e/1FAIpQLSeb56tr5ZmuC_b1rbKRBPoxCjAfxj908mcd1e72HVNDRDu3SQ/viewform
+
+https://lnkd.in/p/dnPNcbxN
+
+these 2 besant jobs
 Location:
 6-2-85/B. Old maternity hospital road,Thyagaraja nagar, Nehru Nagar, Tirupati 
 
